@@ -3,7 +3,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 --------------------------
 
-* 🌍  I'm based in Bhubaneshwar, India
+* 🌍  I'm based in Faridabad, Haryana
 * ✉️  You can contact me at [maneshnachoudhary@gmail.com](mailto:maneshnachoudhary@gmail.com
 
 ### Skills
